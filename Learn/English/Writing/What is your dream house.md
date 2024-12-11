@@ -1,0 +1,19 @@
+
+
+### Official version
+
+ I always dream about the house that is located in a forest, which is completely separate from the world of humans.  This place would not be found by anyone except me. 
+
+Seen from the outside, the house would be surrounded by a light brown fence about 1 meter high and the main gate would have a simple design. The pathway leading to the house will be paved with stones. On both sides, many flowers of various types would be planted. In the front yard of the house,  there would be a neatly trimmed lawn and some ancient trees. I would always sit under those ancient trees, enjoying some books or listening to music on hot summer days. The house would be completely made of brown wood and have 2 floors. The roof would be sloped and covered with dark shingles designed to withstand all kinds of weather. The porch of the house would be wide, supported by robust wooden pillars. Outdoor wall lanterns would be hung around the house, and the yellow light of them would create a warmth and comfort atmosphere. There is a main door and two small windows on either side on the first floor. On the second floor, there is a large window positioned in the center.
+
+The house would be divided into 3 rooms. The first floor would have a living room and a kitchen. The bedroom would be located on the second floor.
+
+In the living room, there would be a cozy sofa set. It wouldn't be an ordinary sofa as it allows me to explore around the world.  Choosing a place you want to visit and chanting the magic words "The world is mine", you would find yourself in your chosen destination. However, you could only explore this destination no longer than an hour before being transported back to the sofa. The television would be installed on the wall opposite the sofa. It would be set up to connect to a gaming console. Besides entertaining casual programs, I could immerse myself in a whole new adventure by chainting "Through the screen, my soul shall glide". When the spell is cast, I would enter the world of the program and experience it as if it were the real world. Although, I should be cautious with this spell because I almost got stuck in a game called "Dark Kingdom", where I was arrested and nearly faced a death sentence. Fortunately, I escaped in time and immediately got out of that world. Under the TV, there is a fireplace, which would help me survive through the cold winter seasons. It also help me meet my best friend who is named "Emberveil". He is a warm flame and he would appear every time I light the fireplace. He helps me feel less lonely and always hears me when I want to share. 
+  
+
+My kitchen simply consists of a dining table, a crockery cabinet, and a stove but it is different from typical kitchens. The stove wouldn't use electricity, gas or fire like usual. It would operate based on spells. When I want to cook a dish, I need to memorize the magic spell of it. There is a basket that I use to collect the necessary ingredients for cooking. Whenever I need an ingredient or spice, I chant the magic word "Summon" to bring what I need into the basket. I have to answer 3 questions about the ingredient to get it.
+  
+
+Upstairs, there is a spacious bedroom. The bed is neatly placed in a corner of the room. It is made of teak wood and measures about 1mx2m. The bedding would change color depending on my mood whenever I lie down. When I have a dream, the pillow would record those moments and let me watch them if I wanted. Next to the bed is a mirror where I can choose my outfits by chanting spells. The other corner of the room is a study desk and a bookshelf where I can learn new spells.
+
+My dream house is like a sanctuary of wonders, existing only in my imagination. However, I treasure the present, as it gives me the foundation to dream and imagine freely. Without the reality I have now, these dreams would never have been born.
