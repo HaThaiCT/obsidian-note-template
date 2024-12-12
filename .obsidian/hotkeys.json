@@ -100,7 +100,6 @@
   "obsidian-mind-map:app:markmap-preview": [
     {
       "modifiers": [
-        "Ctrl",
         "Mod"
       ],
       "key": "M"
@@ -217,20 +216,20 @@
       "key": "X"
     }
   ],
-  "llm-dictionary:look_up": [
-    {
-      "modifiers": [
-        "Shift"
-      ],
-      "key": "/"
-    }
-  ],
   "llm-dictionary:translation": [
     {
       "modifiers": [
-        "Shift"
+        "Alt"
       ],
-      "key": "."
+      "key": "T"
+    }
+  ],
+  "llm-dictionary:look_up": [
+    {
+      "modifiers": [
+        "Alt"
+      ],
+      "key": "L"
     }
   ]
 }
